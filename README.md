@@ -180,7 +180,7 @@ Apply → Recruit/Volunteer → Activity → Promotion → Elite → Prestige
 > This is not just a group.  
 > This is a **system for power, income, and dominance.**
 
----
+----
 
 ## 📬 CONTACT
 - Email: Baldwinhack@icloud.com  
